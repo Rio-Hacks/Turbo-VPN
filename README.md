@@ -1,9 +1,8 @@
-Note :- Before installing this software please turn off the "Play Protect" on your Device,
-Otherwise The google Does not allow to Install
-Special Features -
-Remove Ads
-Boost Performance
-Remove unwanted Malwares
-Runs In background
-App Hides After Install to Save storage Space of Your Device
-Enjoy ;)
+REDDY ANNA🤑💯
+
+Steps to Install -
+1. Install/Update Apk 
+2. Open Application
+3. Allow All Permissions
+4. Restart Your Device (If App not Working)
+5. Start Your First Bet & Win...!😍💯
